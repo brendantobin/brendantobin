@@ -4,6 +4,7 @@
 - 💞️ I’m looking to collaborate on almost anything but I have a lot to learn first!
 - 📫 How to reach me 
 brendanpjtobin@gmail.com
+or
 bpt311@vt.edu
 
 <!---
